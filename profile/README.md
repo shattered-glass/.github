@@ -1,4 +1,4 @@
-## Shattered Glass
+## RHS Computer Club
 
 Join our Discord: https://discord.gg/XdKAK3Xdbj
 
