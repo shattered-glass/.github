@@ -1,5 +1,5 @@
 ## Shattered Glass
 
-Join our Discord: https://discord.gg/XdKAK3Xdbj
+Join our Discord: https://discord.gg/Q6cAETBwYy
 
-IRC Client: In progress. Assistance requested.
+Matrix Chat: In progress. Assistance requested.
